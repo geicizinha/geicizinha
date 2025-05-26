@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @geicizinha
-- ![![image](https://github.com/user-attachments/assets/a74ef916-6f17-4dfc-a7db-df2a24264c2d)]
 ![image](https://github.com/user-attachments/assets/59d4047f-8326-481b-a327-c657d8a85701)
 
 - 👀 I’m interested in nothing right now
