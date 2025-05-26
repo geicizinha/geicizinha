@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @geicizinha
-- ![https://images.app.goo.gl/fCwZEhkVcSdmciQJ6]
+- ![![image](https://github.com/user-attachments/assets/a74ef916-6f17-4dfc-a7db-df2a24264c2d)]
+
 - 👀 I’m interested in nothing right now
 - 🌱 I’m currently learning to sleep more
 - 💞️ I’m looking to collaborate in activities
