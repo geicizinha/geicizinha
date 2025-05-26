@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @geicizinha
-!
-![https://i.pinimg.com/originals/6e/a6/25/6ea625029f7f8f1d24952ba37718216a.gif
+
+![https://i.pinimg.com/originals/6e/a6/25/6ea625029f7f8f1d24952ba37718216a.gif]
 - 👀 I’m interested in nothing right now
 - 🌱 I’m currently learning to sleep more
 - 💞️ I’m looking to collaborate in activities
